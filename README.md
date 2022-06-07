@@ -1,5 +1,6 @@
 <h2>Regras-do-Grupo-Geoprogramadores</h2>
 
+Link do Grupo: https://chat.whatsapp.com/C8T7PNB8WwY4PCaPW06az6
 --Repositório apenas para conter as regras de boa convivência do grupo--
 
 <h3>1 - Proibido falar e/ou postar assuntos pornográficos! </h3>
